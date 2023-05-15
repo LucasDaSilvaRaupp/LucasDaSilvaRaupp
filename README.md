@@ -14,3 +14,4 @@
 #### Não gosto de gente folgada. O santo não bate muito.
 #### Há mais um tanto de coisas que eu não gosto, mas não vou falar todas, porque eu iria falar umas 30 linhas sobre.
 
+.[_![] https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.correiobraziliense.com.br%2Fesportes%2F2022%2F09%2F5036768-cbb-aprova-rompimento-com-a-liga-nacional-de-basquete-entenda-a-treta.html&psig=AOvVaw2LKKGvBKD7d5XQTP_i1Hdz&ust=1684236530382000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCKiO_pec9_4CFQAAAAAdAAAAABAD
