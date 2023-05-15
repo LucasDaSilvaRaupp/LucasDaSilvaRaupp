@@ -14,4 +14,4 @@
 #### Não gosto de gente folgada. O santo não bate muito.
 #### Há mais um tanto de coisas que eu não gosto, mas não vou falar todas, porque eu iria falar umas 30 linhas sobre.
 
-[![Imagem](https://img.freepik.com/vetores-premium/desenho-de-linha-continua-de-jogador-de-basquete-profissional-masculino-isolado-com-conceito-de-aptidao-de-bola_500861-227.jpg?w=740)
+[![Imagem](https://img.freepik.com/vetores-premium/desenho-de-linha-continua-de-jogador-de-basquete-profissional-masculino-isolado-com-conceito-de-aptidao-de-bola_500861-227.jpg?w=740)]
