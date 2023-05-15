@@ -1,11 +1,5 @@
 # Sobre Mim
 ### Me chamo Lucas da Silva Raupp, tenho 16 anos e vários objetivos a serem alcançados!!!
-Coisas pessoais
- Minha família é formada por 4 pessoas: eu, meu pai, minha mãe e minha irmã.
- Eu me chamo "Lucas". Eu sou eu, é isso.
- Meu pai se chama "Rodrigo". Ele é o homem mais incrível que eu conheço.
- Minha mãe se chama "Margarete". Ela é a mulher mais incrível que eu conheço.
- Minha irmã se chama "Bárbara". Ela é uma irmã incrível, mas a gente vive brigando.
 
 Coisas que gosto
  Na lista de coisas que eu gosto, não posso deixar minha família de fora da minha primeira citação. Família, é simplesmente minha base para tudo na vida. Meus pais são casados, e tenho uma irmã mais nova.
