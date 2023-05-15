@@ -1,5 +1,5 @@
 # 💫 About Me:
-Me chamo Lucas da Silva Raupp, tenho 16 anos e vários objetivos a serem alcançados.<br>Estou cursando Desenvolvimento de Sistema, no Sesi Senai.<br>E eu amo basquete!!<br>Agora, vamos para o que interessa no meu portólio<br> 
+Me chamo Lucas da Silva Raupp, tenho 16 anos e vários objetivos a serem alcançados.<br>Estou cursando Desenvolvimento de Sistema, no Sesi Senai.<br>E eu amo basquete!!<br>Agora, vamos para o que interessa no meu portólio!!!<br> 
 
 
 ## 🌐 Socials:
