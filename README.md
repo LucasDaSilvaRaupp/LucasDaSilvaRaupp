@@ -14,4 +14,5 @@
 #### Na lista e coisas que não gosto, vou começar falando sobre falsidade. Acredito que ninguém gosta de falsidade. Não tenho muito o que falar sobre o motivo de eu não gostar de falsidade, a palavra em si já diz tudo.
 #### Não gosto de gente folgada. O santo não bate muito.
 #### Há mais um tanto de coisas que eu não gosto, mas não vou falar todas, porque eu iria falar umas 30 linhas sobre.
+![Imagem (https://s2.glbimg.com/4AQXrC544aSwNCLVjd8pP2hnY_k=/e.glbimg.com/og/ed/f/original/2016/01/20/diarioweb_filme_divertidamente_raiva.jpg)
 
