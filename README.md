@@ -1,3 +1,6 @@
+# 💫 About Me:
+Me chamo Lucas da Silva Raupp, tenho 16 anos e vários objetivos a serem alcançados.<br>Estou cursando Desenvolvimento de Sistema, no Sesi Senai.<br>E eu amo basquete!!<br>Agora, vamos para o que interessa no meu portólio<br> 
+
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/raupp.fx_) [![TikTok](https://img.shields.io/badge/TikTok-%23000000.svg?logo=TikTok&logoColor=white)](https://tiktok.com/@raupp.fx_) 
