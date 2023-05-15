@@ -8,6 +8,7 @@
 #### Gosto também de sair com meus amigos, ouvir música...
 ![Imagem](https://img.freepik.com/vetores-premium/desenho-de-linha-continua-de-jogador-de-basquete-profissional-masculino-isolado-com-conceito-de-aptidao-de-bola_500861-227.jpg?w=740)
 
+ai que bom
 ㅤ
 
 ### Coisas que não gosto
